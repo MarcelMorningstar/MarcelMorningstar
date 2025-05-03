@@ -1,9 +1,9 @@
-### Hi there, I'm Roland - aka [MarcelMorningstar] 👋
+### Hi there, I'm Roland 👋
 
 ## I'm a Developer!!
 
 - 👨‍🎓 I’m currently learning everything! 😹
-- 🥅 2023 Goals: To upskill as much as I can.
+- 🥅 2025 Goals: To upskill as much as I can.
 - ⚡ Fun fact: I love motorcycles.
 
 ### Connect with me:
